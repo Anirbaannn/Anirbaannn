@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anirbaannn
-- 👀 I’m interested in computer and tech
+- 👀 I’m interested in Technologies and Art
 - 🌱 I’m currently learning Data analysis & Web development
 - 💞️ I’m looking to collaborate on ........
 - 📫 How to reach me anirbanbhowmik36@gmail.com
